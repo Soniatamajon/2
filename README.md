@@ -1,3 +1,3 @@
-# p2
+# 2
 
-https://Soniatamajon.github.io/p2/
+https://Soniatamajon.github.io/2/
